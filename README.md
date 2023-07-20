@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cutc270
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning web3
